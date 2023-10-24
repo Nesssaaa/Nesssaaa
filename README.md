@@ -10,3 +10,4 @@ I like to
 - listening to podcasts
 - visiting cinemas and theatre
 - and learning new things like coding
+![15-23-06-837_512](https://github.com/Nesssaaa/Nesssaaa/assets/148340045/b327227f-685f-4fe6-a2b1-f6787898c865)
