@@ -10,5 +10,8 @@ I like to
 - listening to podcasts
 - visiting cinemas and theatre
 - and learning new things like coding
-<img src="https://github.com/Nesssaaa/Nesssaaa/assets/148340045/f8fe4486-82a0-4323-879f-36547c9868d2" width= "100"px heigth= "100"px />
+
+![15-23-06-837_512](https://github.com/Nesssaaa/Nesssaaa/assets/148340045/7430fda3-1089-408d-94f6-a3eb0f9cd05a)
+  
+
 
